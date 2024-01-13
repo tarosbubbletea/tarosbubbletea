@@ -1,1 +1,1 @@
-even the who knows
+Académico, Informático, Chileno.
